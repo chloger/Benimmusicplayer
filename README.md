@@ -1,1 +1,1 @@
-Proje Hakkında Bilgiler Sunum.mobil.pptx içnde mevcuttur
+////////Proje Hakkında Bilgiler Sunum.mobil.pptx içnde mevcuttur.////////
